@@ -21,7 +21,6 @@ Content strategy & brand positioning
 Social media growth and engagement
 
 
-📫 How to reach me
 📩 Email: bruperezmkt@gmail.com
 
 🔗 LinkedIn: linkedin.com/in/bruperezmkt
