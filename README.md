@@ -1,6 +1,6 @@
 👋 Olá, sou Bruna Perez (@bruperezmkt) 
 
-👀 Estou interessada em Marketing Digital e Estratégia de Mídias Sociais Visualização de Dados e Análise (Power BI) 
+👀 Estou interessada em Marketing Digital e Estratégia de Mídias Sociais com visualização de Dados e Análise (Power BI) 
 
 🌱 Estou aprendendo atualmente:
 
