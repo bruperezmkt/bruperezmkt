@@ -14,11 +14,5 @@
 - Estratégia de conteúdo e posicionamento de marca
 - Crescimento e engajamento nas mídias sociais
 
-  
-📩 E-mail: bruperezmkt@gmail.com
-
-🔗 LinkedIn: linkedin.com/in/bruperezmkt
-
-🌎 Portfólio: bit.ly/brunaperez
 
 ⚡ Curiosidade: comecei minha carreira em biomedicina, fiz a transição para marketing e agora estou mergulhando na análise de dados, porque números também contam histórias! 😄
