@@ -23,7 +23,9 @@ Social media growth and engagement
 
 📫 How to reach me
 📩 Email: bruperezmkt@gmail.com
+
 🔗 LinkedIn: linkedin.com/in/bruperezmkt
+
 🌎 Portfolio: bit.ly/brunaperez
 
 ⚡ Fun fact
