@@ -3,7 +3,7 @@
 
 
 
-👀 I’m interested in
+👀 I’m interessada in
 Digital Marketing & Social Media Strategy
 Data Visualization & Analytics (Power BI)
 Copywriting & Content Creation
