@@ -5,7 +5,7 @@
 
 👀 I’m interested in
 Digital Marketing & Social Media Strategy
-Data Visualization & Analytics (Power BI, Google Data Studio)
+Data Visualization & Analytics (Power BI)
 Copywriting & Content Creation
 
 
