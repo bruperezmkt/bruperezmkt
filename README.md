@@ -1,6 +1,6 @@
-👋 Olá, sou Bruna Perez (@bruperezmkt) 🎯 Especialista em mídias sociais e marketing | 📊 Entusiasta do Power BI | 🚀 Estratégias baseadas em conteúdo e dados
+👋 Olá, sou Bruna Perez (@bruperezmkt) 🎯 Especialista em mídias sociais e marketing | 📊 Entusiasta do Power BI | 
 
-👀 Estou interessada em Marketing Digital e Estratégia de Mídias Sociais Visualização de Dados e Análise (Power BI) Redação e Criação de Conteúdo
+👀 Estou interessada em Marketing Digital e Estratégia de Mídias Sociais Visualização de Dados e Análise (Power BI) 
 
 🌱 Estou aprendendo atualmente:
 
