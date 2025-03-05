@@ -10,15 +10,15 @@ Copywriting & Content Creation
 
 
 🌱 I’m currently learning
-Power BI (5 courses completed on Alura)
-Advanced Data Analysis & Marketing Automation
-SEO & Performance Marketing
+- Power BI
+- Advanced Data Analysis & Marketing Automation
+- SEO & Performance Marketing
 
 
 💞️ I’m looking to collaborate on
-Marketing dashboards & data visualization projects
-Content strategy & brand positioning
-Social media growth and engagement
+- Marketing dashboards & data visualization projects
+- Content strategy & brand positioning
+- Social media growth and engagement
 
 
 📩 Email: bruperezmkt@gmail.com
