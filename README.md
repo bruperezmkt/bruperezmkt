@@ -4,7 +4,6 @@
 
 🌱 Estou aprendendo atualmente:
 
-- Power BI
 - Análise avançada de dados e automação de marketing
 - SEO e Marketing de Desempenho
 
