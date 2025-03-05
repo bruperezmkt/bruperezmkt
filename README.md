@@ -1,31 +1,24 @@
-👋 Hi, I’m Bruna Perez (@bruperezmkt)
-🎯 Social Media & Marketing Specialist | 📊 Power BI Enthusiast | 🚀 Content & Data-Driven Strategies
+👋 Olá, sou Bruna Perez (@bruperezmkt) 🎯 Especialista em mídias sociais e marketing | 📊 Entusiasta do Power BI | 🚀 Estratégias baseadas em conteúdo e dados
 
+👀 Estou interessada em Marketing Digital e Estratégia de Mídias Sociais Visualização de Dados e Análise (Power BI) Redação e Criação de Conteúdo
 
+🌱 Estou aprendendo atualmente:
 
-👀 I’m interessada in
-Digital Marketing & Social Media Strategy
-Data Visualization & Analytics (Power BI)
-Copywriting & Content Creation
-
-
-🌱 I’m currently learning
 - Power BI
-- Advanced Data Analysis & Marketing Automation
-- SEO & Performance Marketing
+- Análise avançada de dados e automação de marketing
+- SEO e Marketing de Desempenho
 
+💞️ Estou procurando colaborar em:
 
-💞️ I’m looking to collaborate on
-- Marketing dashboards & data visualization projects
-- Content strategy & brand positioning
-- Social media growth and engagement
+- Painéis de marketing e projetos de visualização de dados
+- Estratégia de conteúdo e posicionamento de marca
+- Crescimento e engajamento nas mídias sociais
 
-
-📩 Email: bruperezmkt@gmail.com
+  
+📩 E-mail: bruperezmkt@gmail.com
 
 🔗 LinkedIn: linkedin.com/in/bruperezmkt
 
-🌎 Portfolio: bit.ly/brunaperez
+🌎 Portfólio: bit.ly/brunaperez
 
-⚡ Fun fact
-I started my career in Biomedical Science, transitioned to marketing, and now I’m diving into data analytics—because numbers also tell stories! 😄
+⚡ Curiosidade: comecei minha carreira em biomedicina, fiz a transição para marketing e agora estou mergulhando na análise de dados, porque números também contam histórias! 😄
